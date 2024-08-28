@@ -15,7 +15,9 @@ Preview the clinic on the [Popcorn RP Youtube Channel](https://youtu.be/oLUBGIdU
 
 - Outside and indoor waiting area
 - Parking lot
-- private (or not so private) examination area
+- Private (or not so private) examination area
 - Front desk
 - Bathroom
 - All files are unlocked; work your magic!
+
+🍿
