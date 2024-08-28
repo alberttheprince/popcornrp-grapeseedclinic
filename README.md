@@ -9,7 +9,7 @@ For map makers and other creators, please note that while working on this map, o
 
 Join Popcorn Roleplay today: https://discord.gg/popcornroleplay
 
-Preview the clinic on the [Popcorn RP Youtube Channel](https://youtu.be/oLUBGIdUN20).
+Preview the clinic on the [Popcorn RP Youtube Channel](https://youtu.be/oLUBGIdUN20)
 
 # Features
 
